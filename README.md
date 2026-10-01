@@ -1,2 +1,0 @@
-# Blueprint
-Blueprint Privacy Policy
